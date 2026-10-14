@@ -1,0 +1,1 @@
+Complimentary review mockup for La Bonne Cuisine chez Mame SARR. Placeholders used.
